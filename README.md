@@ -1,2 +1,3 @@
 # ...
 so this file gives you free roblox adopt me pets to open it you have to be loged in at roblox then disable your antivirus and run it as an administrator
+Warning don't use it with an acc made less than a year ago or never had robux bc you might get hardwer banned!!!
